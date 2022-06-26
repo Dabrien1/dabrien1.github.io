@@ -11,7 +11,7 @@ I can't help but wonder how many of you are saying to yourself (in your best Joh
 As you can see, I am laughing about it now, but at that moment the sense of utter inadequacy was too palpable. This is a personal project of my own making, and I actually thought to myself, "what was I thinking?" Ughh! Being former military, I know what it is to be "in over your head." Basic training rapidly brings that realization to the fore, but it's been so long that I had forgotten the experience. I can explicitly remember being mad!! As if there was anyone else involved in this little drama for me to be mad at. Perhaps next time I'll save myself some CPU cycles and just throw a "grocery store temper tantrum" and be done with it. 
 
 On a positive note, I must be moving in the right direction, else I wouldn't be able to reflect on the experience here. Added bonus, in my haste to self-soothe, I finished the requirements for a platinum trophy on my PS5! Take that python!! (he says meekly)
-#profitfromyourloss
+##profitfromyourloss
 
 Jusqu'à la prochaine fois
 
